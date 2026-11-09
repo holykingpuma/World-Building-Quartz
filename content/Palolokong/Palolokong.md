@@ -34,6 +34,8 @@ The events leading up to the Planar Schism are not known in the histories of Pal
 
 ### Geography
 
-Palolokong is  
+Palolokong is a cool new website for my players to see
 
 [^1]: Pre Planar Schism
+
+

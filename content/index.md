@@ -1,0 +1,2 @@
+[[Palolokong]]
+Mor-Thir
